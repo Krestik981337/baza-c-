@@ -1,8 +1,8 @@
-[![](https://i.pinimg.com/originals/66/dc/5e/66dc5e80ba5890783167359c7d9136f7.gif)](https://cs8.livemaster.ru/storage/25/ea/956522377292ad0edd1d0f41687k.gif)
+![](https://cs8.livemaster.ru/storage/25/ea/956522377292ad0edd1d0f41687k.gif)
 
->>>Первый пак тасков подъехал
+>>это баzа
 > 
-> >>сделал Даник
+> >>сделал Николай
 > 
 > >>группа П22-3.1
 
